@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Batmvninarkham
-- 👀 I’m interested in c++
-- learning new things everyday so theres more to see definitely
+- 👀 c++ ENTHUSIAST †
 
 <!---
 Batmvninarkham/Batmvninarkham is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
