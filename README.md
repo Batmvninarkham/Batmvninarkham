@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @Batmvninarkham  //paul Mwaura
 - 👀 c++ ENTHUSIAST †
+- FW on ig instagram.com/_centnas_
 
-<!---
-Batmvninarkham/Batmvninarkham is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+  ╔═╗╔═╗╔═╗╔═╗╔═╗╔═╗╔═╗╔═╗╔═╗╔═╗╔═╗╔═╗
+  ║N║║O║║-║║R║║O║║L║║L║║B║║A║║C║║K║║ ║
+  ╚═╝╚═╝╚═╝╚═╝╚═╝╚═╝╚═╝╚═╝╚═╝╚═╝╚═╝╚═╝
+    ▓▒░ ⚙  S T A Y   R O O T E D  ░▒▓
